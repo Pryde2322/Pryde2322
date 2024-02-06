@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...making games and fun projects
 - 📫 How to reach me ...hiplord2322@gmail.com
 - 😄 Pronouns: ...He/Him also Hehe
-- ⚡ Fun fact: ...I like anime maids
+- ⚡ Fun fact: ...My favorite anime is K-on
 
 <!---
 Pryde2322/Pryde2322 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
